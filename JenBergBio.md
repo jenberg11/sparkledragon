@@ -9,3 +9,5 @@
 * Through helping teams hone their abilities to approach the deeply complex and rapidly changing landscape of modern business through a more human centric lens, I have helped start-ups, small businesses, and large multi-national corporations solve challenging problems by listening to each other and their customers in new ways.
 
 * I cultivate an environment of safety and trust in every engagement, allowing for the deep collaboration of everyone involved.
+
+Additional stuff to pull from: http://www.jenberg.com/work.html
