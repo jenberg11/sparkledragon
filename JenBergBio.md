@@ -10,4 +10,7 @@
 
 * I cultivate an environment of safety and trust in every engagement, allowing for the deep collaboration of everyone involved.
 
+* I am a coach and facilitator who brings people together to create extraordinary things by listening to each other and their customers in new ways by focusing on engaging from a place of curiosity, compassion, and discovery.
+
+
 Additional stuff to pull from: http://www.jenberg.com/work.html
